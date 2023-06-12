@@ -1,7 +1,7 @@
 - 👋 Hi, I’m 🌭🥊
-- 👀 I’m interested in freedom
-- 🌱 I’m currently learning reality
-- 💞️ I’m looking to collaborate on fun
+- 👀 I’m interested in FREEDOM
+- 🌱 I’m currently learning TO BE STUPID
+- 💞️ I’m looking to collaborate on FUN
 - 📫 How to reach me 📣📞
 
 <!---
